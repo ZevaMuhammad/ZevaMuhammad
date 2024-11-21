@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ZevaMuhammad
 - 👀 I’m interested in Learning anything about Python
-- 🌱 I’m currently learning Python odoo18
+- 🌱 I’m currently learning i give up to study odoo. odoo is shit
 - 💞️ I’m looking to collaborate on everone
 - 📫 How to reach me zevamuhammad0@gmail.com
 - 😄 Pronouns: He/Him
